@@ -1,4 +1,4 @@
-# EduZign OTO In-Depth Review & Features + Demo
+# EduZign OTO In-Depth Review & Features + Demo 2025
 
 **EduZign** is a **powerful AI-driven platform** designed to help you **create, host, and sell video courses** in any niche — with **zero manual effort**. With this **cutting-edge AI software**, you can **launch your own online education business**
 
